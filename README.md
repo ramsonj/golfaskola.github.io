@@ -1,0 +1,1 @@
+# golfaskola.github.io
